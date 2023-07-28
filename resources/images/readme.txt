@@ -1,0 +1,1 @@
+PROCESSED IMAGES FOLDER - don't remove
